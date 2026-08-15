@@ -15,7 +15,7 @@
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
 
 
-<p align="center"> <a href="https://pronouns.cc/@Haunted" target="_blank">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a> <a href="https://songmachine.atabook.org" target="_blank">ᴀᴛᴀ</a> <a href="https://bagoratz.straw.page" target="_blank">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+<p align="center"> <a href="https://pronouns.cc/@copperbottoms" target="_blank">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a> <a href="https://copperbottoms.atabook.org" target="_blank">ᴀᴛᴀ</a> <a href="https://copperbottoms.straw.page" target="_blank">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
   
 <p align="center"> 🎰🩵💿
 
